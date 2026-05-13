@@ -1,16 +1,14 @@
-## Hi there 👋
 
-<!--
-**TestyTest1223/TestyTest1223** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# Hello there!
 
-Here are some ideas to get you started:
+*you can call me Testy/test.*
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+*he/him.*
+
+*ru / eng / ua.* 
+
+*main server - Safe Russian #1.* 
+
+*usually c+h/int, but if I'm w/ my friends, dniuf.* 
+
+<img width="225" height="225" alt="image" src="https://github.com/user-attachments/assets/3d3f68dd-a619-4811-bb7f-1a3ae32dde0c" />
