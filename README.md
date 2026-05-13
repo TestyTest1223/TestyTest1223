@@ -6,6 +6,8 @@ Hello!
 
 *he/him.*
 
+*a lil bit big mutlifandomer*
+
 *ru / eng / ua.* 
 
 *main server - Safe Russian #1.* 
